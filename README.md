@@ -1,1 +1,1 @@
-# First 2 sessions
+# First 4 sessions
